@@ -1,0 +1,24 @@
+{
+  "name": "tanachscraper",
+  "version": "1.0.0",
+  "main": "index.js",
+  "scripts": {
+    "test": "npx tsx test_chapter.ts",
+    "test:fetch": "node test_fetch.js",
+    "test:fetch2": "node test_fetch2.js",
+    "start": "npx tsx scraper.ts"
+  },
+  "keywords": [],
+  "author": "",
+  "license": "ISC",
+  "description": "",
+  "dependencies": {
+    "axios": "^1.15.0",
+    "cheerio": "^1.2.0"
+  },
+  "devDependencies": {
+    "@types/node": "^25.6.0",
+    "tsx": "^4.21.0",
+    "typescript": "^6.0.2"
+  }
+}
