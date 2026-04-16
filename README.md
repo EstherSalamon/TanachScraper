@@ -27,19 +27,17 @@ Output is saved to `%USERPROFILE%\Desktop\Tanach`. If that folder already exists
 npm install
 ```
 
-## Run
+## Scripts
+
+### `npm start` — Full scrape
 
 ```bash
-npx tsx scraper.ts
+npm start
 ```
 
-Progress is logged to the console. A `stats.md` summary file is written to the output root when the run completes.
+Scrapes all 929 chapters and saves them to `%USERPROFILE%\Desktop\Tanach`. Progress is logged to the console. A `stats.md` summary file is written to the output root when the run completes.
 
-## Tests
-
-### `test_chapter.ts` — single-chapter preview
-
-Fetches one chapter, parses it, and writes `test_output.md` next to the script. Open `test_output.md` in VS Code to visually verify the Hebrew renders correctly — do **not** rely on the Windows terminal, which does not render RTL text.
+### `npm test` — Single-chapter preview
 
 ```bash
 npm test                           # Bereshit 1 (default, AID 8165)
@@ -47,4 +45,22 @@ npx tsx test_chapter.ts 8166       # Bereshit 2
 npx tsx test_chapter.ts 16222      # Tehillim 1
 ```
 
+Fetches one chapter, parses it, and writes `test_output.md` next to the script. Open `test_output.md` in VS Code to visually verify the Hebrew renders correctly — do **not** rely on the Windows terminal, which does not render RTL text.
+
 The output mirrors all 6 file variants (`-H.md`, `-H.nikkud.md`, `-E.md`, `.rashi.md`, `-H.rashi.md`, `-E.rashi.md`) for the first 5 verses/entries.
+
+### `npm run test:fetch` — Fetch test
+
+```bash
+npm run test:fetch
+```
+
+Tests the fetch module directly.
+
+### `npm run test:fetch2` — Alternative fetch test
+
+```bash
+npm run test:fetch2
+```
+
+Alternative fetch module test.
