@@ -3,7 +3,7 @@
   "version": "1.0.0",
   "main": "index.js",
   "scripts": {
-    "test": "npx tsx test_chapter.ts",
+    "test": "node -e \"require('fs').existsSync('test_output.md') && require('fs').unlinkSync('test_output.md')\" && npx tsx test_chapter.ts",
     "test:fetch": "node test_fetch.js",
     "test:fetch2": "node test_fetch2.js",
     "start": "npx tsx scraper.ts"
