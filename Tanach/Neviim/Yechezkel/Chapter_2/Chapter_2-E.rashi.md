@@ -1,0 +1,53 @@
+**1**	**And He said to me: “Son of man, etc.”.** He calls Ezekiel “son of man” because he saw the Celestial Chariot while walking among [the denizens of (Malbim ed.)] the heavenly heights and involving himself with it like the angels, as if to say “There is no one here of woman born but this one.” (So did a man explain this to my rabbi, and he [thus] pleased him. I hold, however, that He called him “son of man” only so that he should not become haughty from having become familiar with the Celestial Chariot and with workings of the heavenly beings. This [latter remark] does not appear in other editions.
+
+
+
+**2**	**what was being spoken to me.** Heb. מִדַבֵּר. What was being spoken with me. And it is respectful to write מִדַבֵּר when referring to [the One in] Heaven, for if one says מְדַבֵּר, the implication is [that He speaks] like a man who speaks to his fellow, turning to him face to face; but if one says מִדַבֵּר, it means that the Shechinah, in His eminence, is soliloquizing, and His messengers will overhear; porpariliz in Old French, intimate words.
+
+
+
+**3**	**to rebellious nations.** Two tribes are called two nations.
+
+
+
+**4**	**And the sons.** Since He says, “their fathers rebelled against Me,” and these sons of theirs are brazen-faced.
+
+
+
+**5**	**And they whether they listen or whether they forbear.** from listening.
+
+**5**	**for they are a rebellious house.** They are remonstrative people, but I want them to know at the time of their retribution that a prophet had been in their midst who reproved them, and they did not heed.
+
+
+
+**6**	**obstinate.** Heb. סָרָבִים, a term for disobedience, like סָרְבָנִים (Menachem p.129), but Dunash (p. 77) interpreted it as a word for thorns [like the next word, סלונים. Consequently] there are two words [for thorns].
+
+**6**	**and thorny.** Heb. וְסַלוֹנִים, a word for thorns, and so (below 28:24) “a pricking briar (סִלוֹן) and a piercing thorn.”
+
+**6**	**and you sit on eglantines.** Heb. עַקְרַבִּים. The people whom you reprove will weary you and provoke you [making you feel] as if you were sitting on eglantines, which prick you on all sides.
+
+**6**	**eglantines.** עַקְרַבִּים are eglantiers in French, eglantines. Another interpretation: literally scorpions [the usual meaning of עַקְרַבִּים] and so did Jonathan render: “and among people whose deeds are like scorpions, you dwell.”
+
+
+
+**8**	**do not be rebellious.** [to refrain] from going on My mission.
+
+**8**	**open.** Heb. פְּצֵה, open, and so (Lam. 3:46): “they have opened (פָּצוּ) their mouth against us.”
+
+**8**	**open your mouth and eat.** This is figurative. Bend your ear and hearken, and it will please you as if you are hungrily eating food.
+
+**8**	**what I give you.** What is the giving? It is the scroll of the book.
+
+
+
+**9**	**and behold, etc..** Some things adopt both masculine and feminine gender, such as (Gen. 19:23): “The sun had risen (יָצָא) [msc.] over the earth, etc.;” (Mal. 3:20), “And for you who fear My name, shall the sun of mercy rise (וְזָרְחָה) [fem.]), etc.” [Likewise] (Gen. 32:9), "If Esau comes to the one camp (הָאַחַת) [fem.] and strikes it (וְהִכָּהוּ) [msc.]."
+
+
+
+**10**	**before and behind.** That which existed from the beginning and that which is destined to be in the end.
+
+**10**	**lamentations.** The retribution of the righteous in this world.
+
+**10**	**and murmuring.** Heb. וָהֶגֶה. The gift of their reward, over which they will sing in the future.
+
+**10**	**and woe.** The woe of the wicked in the world to come.

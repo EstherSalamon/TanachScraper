@@ -1,0 +1,71 @@
+**1 [Hebrew]**	**מכתם לדוד.** אמרו רבותינו לדוד שהי' מך ותם שהיתה מכתו תמה שנולד מהול ואין שיטת המקרא נופל על המדרש כאן, יש מזמור שנאמר בו לדוד מכתם, שם יש לפרש שיר זה לדוד שהי' מך ותם אבל כאן שנאמר מכתם לדוד אין לפרשו כן ואומר אני שהוא אחד מן שמות מיני נעימות הזמר וחלוק בנעימות השיר, ד"א מכתם לדוד לשון עטרה כמו כתם שמשמע דבר זה היה רגיל לומר דוד שמרני אל כי חסיתי בך והי' לו כעטרה שנא' (לעיל ה) כ' כצנה רצון תעטרנו (סא"א):<br>
+**1 [English]**	**A michtam of David.** Our Sages said (Sotah 10b, Mid. Ps. 16:1): Of David, who was poor (מך) and perfect (ותם), whose wound (מכתו) was perfect (תמה), for he was born circumcised. However, the sequence of the verse here does not lend itself to be interpreted according to the Midrash. There are psalms prefaced by the title לדוד מכתם, which may be interpreted: This song is David’s, who was poor and perfect, but here, where it is stated מכתם לדוד, it cannot be interpreted in this manner. I therefore say that it is one of the names of the various types of melodies and the variations in the music. Another explanation: מכתם is an expression of a crown, like כתם, meaning that David was accustomed to say, “O God, guard me for I have taken refuge in You.” And this was to him as a crown, as it is stated (5:13): “You shall crown him with will.”
+
+
+
+**2 [Hebrew]**	**אמרת לה' אדני אתה וגו'.** לכנסת ישראל אמר דוד יש עליך לומר לה' אדון אתה וידך על העליונה לכל הבא עלי, ד"א אמרת לה' אדני אתה, לנפשו הי' אומר וכן מצינו דוגמתו (ש"ב יד) ותכל דוד ופתרונו ותכל נפש דוד אף כאן אמרת נפשי לה' את נפשי יש עליך לומר כן להקב"ה (סא"א):<br>
+**2 [English]**	**You should say to the Lord, “You are my Master, etc.”.** David addresses the Congregation of Israel. “It is your duty to say to the Lord, ‘You are the Master, and You have the upper hand in all that befalls me.’” Another explanation: You should say to the Lord, “You are my Master.” He [David] was saying this to his soul. Similarly, we find on this order (in II Sam. 13:39): “And David longed,” which means: And the soul of David longed. Here too, “You, my soul, have said to the Lord,” you my soul, should say to the Holy One, blessed be He. (The second interpretation appears in very few early editions.)
+
+**2 [Hebrew]**	**טובתי בל עליך.** טובות שאתה עושה לי לא עליך הם לגמלני כי לא בצדקתי אתה מטיב לי:<br>
+**2 [English]**	**my good is not incumbent upon You..** The benefits that You do for meit is not incumbent upon You to bestow [them] upon me, because You do not benefit me on account of my righteousness.
+
+
+
+**3 [Hebrew]**	**לקדושים אשר בארץ המה.** בשביל הקדושים אשר המה קבורי' בארץ אשר התהלכו לפניך באמת:<br>
+**3 [English]**	**For the holy ones who are in the earth.** For the sake of the holy ones who are buried in the earth, who walked before You with sincerity.
+
+**3 [Hebrew]**	**ואדירי כל חפצי בם.** הם האדירים אשר כל חפצי בם וכל צרכי נעשים בשבילם:<br>
+**3 [English]**	**and the mighty ones in whom is all my delight.** They are the mighty ones in whom is all my delight and for whose sake all my necessities are accomplished.
+
+
+
+**4 [Hebrew]**	**ירבו עצבותם וגו'.** כל זה אמרי לה' ירבו עצבותם של כופרים בך המהירי' וחרידי' לעבודת אל אחר, ל"א מהרו לשון מוהר דואירנ"ט בלעז:<br>
+**4 [English]**	**May the sorrows… increase.** All this you should say to the Lord, “May the sorrows of those who do not believe in You increase,” viz. those who hasten and scurry to idolatry. Another explanation: מהרו is an expression of מֹהַר, dowry, douaire in French.
+
+**4 [Hebrew]**	**בל אסיך נסכיהם מדם.** אני לא אהיה כמותם לזרוק דם לע"ג ולא אשא שם ע"ג על שפתי:<br>
+**4 [English]**	**I will not pour their libations of blood.** I will not be like them, to sprinkle blood for pagan deities, neither will I take up the name of pagan deities upon my lips.
+
+
+
+**5 [Hebrew]**	**ה' מנת חלקי וכוסי.** כל טובתי הימנו, לשון אחר וכוסי וחשבוני כמו (שמות י״ב:ד׳) תכוסו על השה וכן חברו מנחם:<br>
+**5 [English]**	**The Lord is my allotted portion and my cup.** All my benefit is from Him. Another explanation: כוסי means “my share,” as (in Exod. 12:4): “you shall make your count (תכסו) on the lamb.” This is how Menachem (p. 107) associated it.
+
+**5 [Hebrew]**	**אתה תומיך גורלי.** אתה הוא אשר הניחות ידי על החלק הטוב שנאמר החיים והמות נתתי וגו' ובחרת בחיים (דברים ל׳:י״ט) כאדם האוהב אחד מבניו ומניח ידו על החלק הטוב ואומר את זה בחר לך:<br>
+**5 [English]**	**You guide my destiny.** It is You Who placed my hand on the good share, as it is stated (in Deut. 30:19): “I have set life and death before you… Choose life… ” as a man who loves one of his sons and lays his hand on the better share, saying, “Choose this one for yourself.”
+
+**5 [Hebrew]**	**תומיך.** השפלת ידי על הגורל ל' ימך המקרה (קהלת י׳:י״ח) ישפל, כך הוא נדרש בספרי, וגם יש לפותרו לשון תמיכה מדרש האגדה כמו ויתמוך יד אביו וגו' (בראשי' מח):<br>
+**5 [English]**	**guide.** Heb. תומיך. You lowered my hand onto the portion, an expression of (Ecc. 10:18): “the rafter sinks (ימך) ,” is lowered. In this manner it is expounded upon in Sifrei (Deut. 11:26, 27). It can also be interpreted as an expression of support, according to the Midrash Aggadah, as (in Gen. 48:17) “he supported (ויתמך) his father’s hand.”
+
+
+
+**6 [Hebrew]**	**חבלים נפלו לי בנעימים.** כשנפל לי הגורל להיות בחלקך חבל נעים הוא זה אף עלי שפרה נחלה כזו:<br>
+**6 [English]**	**Portions have fallen to me in pleasant places.** When the lot fell to me to be in Your portion, it is a pleasant portion. Also, such an inheritance is pleasing to me.
+
+
+
+**7 [Hebrew]**	**אברך את ה'.** עד כאן ניבא דוד על כנסת ישראל שתאמר כן ועכשיו אומר ואני גם אני אברך את ה' אשר יעצני לבחור בחיים וללכת בדרכיו:<br>
+**7 [English]**	**I will bless the Lord.** Until here, David prophesied concerning the Congregation of Israel, that she would say this, and now he says, “I, too, will bless the Lord, Who counseled me to choose life and to go in His ways.”
+
+**7 [Hebrew]**	**אף לילות יסרוני כליותי.** ליראה אותו ולאהבה ורבותינו פירשוהו על אברהם אבינו שלמד תורה מאליו עד שלא נתנה תורה אף אנו צריכין לישב המקראות על סדרן:<br>
+**7 [English]**	**even at night my conscience instructs me.** to fear Him and to love Him. Our Sages though, (Mid. Ps. 16:7) explained it as referring to our father Abraham, who learned Torah by himself before the Torah was given, but we must reconcile the verses according to their sequence.
+
+
+
+**8 [Hebrew]**	**שויתי ה' לנגדי תמיד.** בכל מעשי שמתי מוראו לנגד עיני ולמה כי מימיני הוא תמיד לעזרני לבל אמוט, ד"א שויתי ה' לנגדי תמיד ס"ת היה עמו לקרות בו כל ימי חייו וזה שאמר מימיני בל אמוט ע"ש התורה שנתנה בימינו שאני עוסק בה ולפיכך בל אמוט (סא"א):<br>
+**8 [English]**	**I have placed the Lord before me constantly.** In all my deeds, I have placed His fear before my eyes. Why? Because He is always at my right hand to help me so that I should not falter. Another explanation: I have placed the Lord before me constantly. [This alludes to] the sefer Torah [that] was with him [for him] to read all the days of his life [as in Deut. 17:19]. This is what he states: “from my right hand I will not falter,” meaning that because of the Torah in which I am engaged, which was given with His right hand, I will not falter. (This interpretation does not appear in any manuscript. It does, however, appear in several early printed editions.) Rashi to Sanhedrin explains that the “right hand” alludes to the Torah scroll that the king would carry suspended from his arm. David is confident that in the merit of that scroll, he will not falter.
+
+
+
+**9 [Hebrew]**	**לכן שמח לבי וגו'.** לפי שאני בוטח כי לא תעזוב נפשי לשאול' שהרי בעון עבירה גדולה שהיתה בידי בשרתני גם ה' העביר חטאתך (שמואל ב י״ב:י״ג) ק"ו שמעתה לא תעזבני לסור ממך:<br>
+**9 [English]**	**Therefore, my heart rejoiced, etc..** because I am confident that You will not forsake my soul to the grave. Since, concerning the iniquity of a grave transgression which I committed, You sent me the tidings (in II Sam. 12:13): “Also the Lord has removed your sin,” certainly from now on You will not forsake me [to cause me] to turn away from You.
+
+
+
+**11 [Hebrew]**	**תודיעני ארח חיים.** לשון עתיד הוא ואינו לשון תפלה:<br>
+**11 [English]**	**You shall let me know the way of life.** This is the future tense, not an expression of prayer.
+
+**11 [Hebrew]**	**שבע שמחות.** שמחה שאין לה קץ ותכלה היא השמחה של עתיד (סא"א):<br>
+**11 [English]**	**the fullness of joys.** Endless joy. That is the joy of the future. (Found only in certain manuscripts.)
+
+**11 [Hebrew]**	**את פניך.** שמחות אשר לפניך בכת הקרובה לך:<br>
+**11 [English]**	**in Your presence.** Joys that are before You, in a company that is near You.

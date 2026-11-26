@@ -1,0 +1,1 @@
+(No Rashi commentary for this chapter.)

@@ -1,0 +1,27 @@
+**1 [Hebrew]**	**שני דניאל לאביגיל.** (ובשמואל ב ג׳:ג׳) כתוב והשני כלאב לאביגיל ובמדרש ויכלו מפרש לפי שדוד נשא אביגיל אחר מיתת נבל והיו חושדין אותו הבן שהוא של נבל לכך קראו דוד שמות שנים כלאב ודניאל דניאל דני אל כלאב שהיה דומה כולו לאב:<br>
+**1 [English]**	**the second, Daniel.** But in II Sam. (3:3) it says: “And the second (sic), Chileab, of Abigail.” It is explained in Midrash Vayechulu (Ozar Midrashim , p. 156) that David married Abigail after Nabal died, and they suspected that her son was Nabal’s. Therefore, David called him by two names: Chileab and Daniel. Daniel God judged him (sic); Chileab he resembles his father.
+
+
+
+**3 [Hebrew]**	**הששי יתרעם לעגלה אשתו.** מדרש וכי היא בלבד אשתו אלא שפעת כעגלה וילדתו ושהיתה חביבה עליו כעגלה כמו (שופטים י״ד:י״ח) לולא חרשתם בעגלתי ומפני חביבותה של מיכל קורא אותה אשתו:<br>
+**3 [English]**	**the sixth, Ithream, to Eglah his wife.** [The] Midrash [asks]: Was she his only wife? But she bellowed like a heifer when she bore him, and that she was beloved to him like a heifer [and was affectionately called Eglah, a heifer], like (Judg. 14:18): “If you had not plowed with my heifer,” and because of the endearment of Michal, he calls her “his wife.”
+
+
+
+**8 [Hebrew]**	**ואלישמע ואליפלט.** ואלידע ואליפלט, (בשמואל ב ה׳:ט״ז) אינו מונה אליפלט אלא פעם אחת ואינו מונה כי אם ז' וכאן מונה ט' וזהו טעמא אליפלט בנו מת ונולד לו בן אחר לאחר כן ונקרא שמו כמו כן אליפלט שהיה הוא שמנה לשם וגם אלישמע מונה כאן ב' פעמים כמו כן נוכל לומר שמת ונולד לו אחר וגם א' מאלו מת ונשארו שבעה וזה שאינו מונה לשם כי אם שבעה והט' שמונה משום כבודו של דוד שהיו לו בנים הרבה שהרי כל הספר נכתב מפני כבודו של דוד וזרעו:<br>
+**8 [English]**	**and Eljada and Eliphelet.** In II Sam. (5:16) Scripture counts Eliphelet only once and counts only seven [sons], but here, he counts nine. The reason is that his son Eliphelet died, and another son was born to him later who was likewise named Eliphelet. He is the one counted there, and also Elishama. Elishama he counts here twice. We can say similarly that he died and another son was born to him, and also one of these died and seven remained. For this reason, he counts there only seven, and the nine that he counts here are for David’s honor, that he had many sons, for indeed the entire Book was written because of the honor of David and his posterity.
+
+
+
+**11 [Hebrew]**	**אחזיהו בנו יואש.** משלמה עד יואש ח' דורות ולפי שראה דוד שהיה זרעו כלה בימי יואש ע"י עתליהו כדכתיב בספר זה (ב' כ"ב) ותקם ותדבר, על לשון דבר ע"י סם המות עמד בתפלה ואמר זה המזמור למנצח על השמינית שמונה נימין (ס"א במנין) על דור שמיני הושיעה ה' כי גמר חסיד וגו' (שם) ונמלט יואש ומן יואש עד יאשיהו ח' דורות שראה דוד שיאשיהו ובניו כולם הולכין לאבדון זה נהרג וזה נקרו עיניו והתפלל עוד על השמינית על דור שמיני ה' אל באפך תוכיחני (שם ו') ובשביל תפילתו נשתיירו בני יהויקים ובכל ספר תהלים אין יותר על השמינית אלא אלו שנים, ומיכניה (ס"א ומיהויקים) עד ענני שבעה שהוא מלך המשיח דכתיב (בדניאל ז׳:י״ג) וארו עם ענני שמיא ל"ח בנים בין בנים ובין דורות לבנים הקב"ה עשה כן בשביל שאמר להקב"ה ל"ח תשבחות בספר עזרא (ד"ה א' כ"ט) (וקראו ספר עזרא לפי שעזרא כתב ד"ה יוש"ה) מן ברוך ה' אלהי ישראל וגו' עד ולחזק ל"ח תיבות:<br>
+**11 [English]**	**Ahaziah his son, Joash.** From Solomon to Joash were eight generations, and since David foresaw that his seed would perish in the days of Joash through Athaliah, as is written in this Book (II Chron. 22:10): “… she arose and destroyed (וַתְּדַבֵּר),” (from the expression of דֶּבֶר pestilence, through poison), he stood in prayer and uttered a psalm (Ps. 12): “For the conductor on the sheminith,” [alluding to an] eight stringed [instrument] (other editions: in number) “for the eighth generation.” (v. 2): “Save, O Lord, for the pious are gone, etc.” And Joash escaped, and from Joash to Josiah are eight generations, for David foresaw that Josiah and his sons would all go to their doom: this one was slain [i.e., Josiah. Perhaps he means Jehoiakim and Zedekiah’s sons as well] and this one’s eyes were gouged out [Zedekiah]. And he [David] prayed again on the sheminith, for the eighth generation (Ps. 6:1f.): “O Lord, do not rebuke me in Your anger,” and because of his prayer, the sons of Jehoiakim survived, and throughout the entire Book of Psalms, there are only these two mentions of the sheminith. And from Jeconiah (other editions: Jehoiakim) until (verse 24): “Anani seven,” which is [an allusion to] the King Messiah, as it is written: (Dan. 7:13): “… and behold, with the clouds of (עֲנָנֵי) the heavens,” are thirty eight sons, including both sons and generations of the sons. The Holy One, blessed be He, did this because he [David] recited thirty eight praises to Him, as it is written in the Book of Ezra (sic) (I Chron. 29:10 13). From “Blessed is the Lord God of Israel, etc.” until “and to strengthen,” are thirty eight words.
+
+
+
+**20 [Hebrew]**	**וחסדיה יושב חסד חמש.** חמש היו לבד משלומית אחותם:<br>
+**20 [English]**	**and Hasadiah, Jushab Hesed five.** They were five in addition to Shelomith their sister.
+
+
+
+**22 [Hebrew]**	**ובני שמעיה חטוש ויגאל ובריח ונעריה ושפט ששה.** אינם אלא ה' ויש בו טעם כמו שכתוב למטה (כ"ה) במשמרו' הלוים לידותון בני ידותון גדליהו וצרי וישעיה חשביהו ומתתיהו ששה ואינם כי אם ה':<br>
+**22 [English]**	**and the sons of Shemaiah: Hattush, and Jigal, and Bariah, and Neariah, and Shaphat six.** They are, in reality, only five, but there is a reason, as is written below (25:3) concerning the watches of the Levites: “Of Jeduthun, the sons of Jeduthun: Gedaliah, and Zeri, and Isaiah, Hashabiah, and Mattithiah six,” but they are only five.

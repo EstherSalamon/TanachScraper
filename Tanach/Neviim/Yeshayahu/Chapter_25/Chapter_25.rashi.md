@@ -1,0 +1,100 @@
+**1 [Hebrew]**	**עצות מרחוק אמונה אומן.** עצות שיעצת מרחוק לאברהם בברית בין הבתרים:<br>
+**1 [English]**	**counsels from long ago in true faith.** Counsels that You advised from long ago to Abraham in the Covenant between the Parts.
+
+**1 [Hebrew]**	**אמונה אומן.** אמונה נאמנת אומן כמו אוהל אוכל ואינו ל' פועל אלא ל' מפעל אבויי"רמינט בלע"ז:<br>
+**1 [English]**	**true faith.** (אֱמוּנָה אֹמֶן). אֹמֶן is like אֹהֶל, tent, אֹכֶל, food, and it is not a verb in present tense but an expression of a noun, obrement (truth) in O.F.
+
+
+
+**2 [Hebrew]**	**כי שמת.** הר שעיר מעיר לגל:<br>
+**2 [English]**	**For You have made.** Mount Seir from a city into a heap.
+
+**2 [Hebrew]**	**ארמון זרים מעיר.** מעון שעשו בעירך שהחריבוה תתן ארמונותיה חורבן אשר לעולם לא יבנה:<br>
+**2 [English]**	**a palace of strangers, because of the city.** Because of the iniquity they committed in Your city, that they destroyed it, You shall make its palaces a ruin, which shall never be rebuilt.
+
+
+
+**4 [Hebrew]**	**מחסה מזרם.** כיסוי אהל להציל מזרם וצל להגין מחורב ומהו אותו זרם הוא רוח עריצים כי רוחם דימה לזרם השוטף בקיר ומפילו:<br>
+**4 [English]**	**a shelter from pouring rain.** a covering of a tent to save from pouring rain and a shade to protect from heat. Now, what is that pouring rain? A spirit of tyrants, for their spirit is like a stream that floods the wall and causes it to fall.
+
+
+
+**5 [Hebrew]**	**כחורב בציון.** בעת יובש שמייבש הזרעים להתמולל כן תכניע שאון זרים:<br>
+**5 [English]**	**Like heat in the dry season.** In the dry season, when the seeds dry out to be cut off, so shall You humble the multitude of the strangers.
+
+**5 [Hebrew]**	**חורב בצל עב.** כשהמים מתקשרים בענן עב בימי השרב שהכל שמחים בו כן יענה שיר הצדיקים על זמיר עריצים ומפלתן:<br>
+**5 [English]**	**like heat with a thick cloud.** When the heavens thicken with thick clouds in the hot season, with which everyone rejoices, so will the song of the righteous be sung concerning the cutting down of the tyrants and their downfall.
+
+**5 [Hebrew]**	**זמיר.** ל' לא תזמור (ויקרא כה):<br>
+**5 [English]**	**the downfall of.** (lit., the cutting down of. זְמִיר). An expression related to (Lev. 25:4): “You shall not prune (תִזְמֹר).”
+
+
+
+**6 [Hebrew]**	**ועשה ה' צבאות לכל העמים.** כשיבאו לצבא על ירושלים:<br>
+**6 [English]**	**And the Lord of Hosts shall make for all the peoples.** when they come to mobilize against Jerusalem.
+
+**6 [Hebrew]**	**משתה שמנים.** שהם סבורים שיהא נוח להם כשמן יהפוך למשתה שמרים:<br>
+**6 [English]**	**a feast of fat things.** which they think that it will be easy for them like fat, which is smooth and soft, will be converted for them to a feast of dregs.
+
+**6 [Hebrew]**	**שמנים ממחים.** נוחים ושמנים כמוח עצמות יהיה שמרים מזוקקים מכל משקה שמן ויין שלא יהא שם אלא שמרים לבדם וכל זה במלחמות גוג ומגוג:<br>
+**6 [English]**	**fat things full of marrow.** soft and fat like the marrow of bones, will be dregs well refined from any liquid of wine or oil, for there will be there only the dregs. All this will be in the war of Gog and Magog.
+
+
+
+**7 [Hebrew]**	**הלוט.** הכסוי הלוט על [כל] העמים. המכסה את כל העמים, הלוט כמו וילט פניו (מלכים א' יט) הנה היא לוטה בשמלה (שמואל א כ״א:י׳):<br>
+**7 [English]**	**the covering.** The covering that covers all the people. Heb. הלוט, similar to “he wrapped his face” (I Kings 19:13), and to “behold, it is wrapped in a garment” (I Samuel 21:10).
+
+**7 [Hebrew]**	**המסכה.** לשון נסיכות ושררה:<br>
+**7 [English]**	**and the kingdom.** (Heb. וְהַמַּסֵּכָה.) An expression of kingdom and ruling.
+
+
+
+**8 [Hebrew]**	**בלע המות.** יכסנו ויעלימנו עולמי' מישראל:<br>
+**8 [English]**	**He has concealed death.** He will cover it and hide it forever from Israel.
+
+
+
+**9 [Hebrew]**	**ואמר.** עמו ביום ההוא הנה וגו':<br>
+**9 [English]**	**And they shall say.** (Lit., and he shall say, i.e.,) His people (shall say) on that day, “Behold, etc.”
+
+**9 [Hebrew]**	**קוינו לו ויושיענו.** היינו מקוים לו שיושיענו:<br>
+**9 [English]**	**we hoped for Him that he would save us.** We were hoping for Him that He would save us.
+
+
+
+**10 [Hebrew]**	**כי תנוח יד ה'.** גבורתו של מקו':<br>
+**10 [English]**	**For the hand of the Lord shall rest.** The might of the Omnipresent.
+
+**10 [Hebrew]**	**ונדוש.** יהא נדוש:<br>
+**10 [English]**	**shall be trampled.** וְנָדוֹשׁ, shall be trampled.
+
+**10 [Hebrew]**	**תחתיו.** במקומו ונדוש כמו ונרוץ הגלגל (קהלת יב):<br>
+**10 [English]**	**in its place.** (תַּחְתָּיו, lit., under him,) in its place. וְנָדוֹשׁ is of the same structure as (Eccl. 12: 6) “And the wheel is crushed (וְנָרוֹץ),” the “nun” indicating the passive voice.
+
+**10 [Hebrew]**	**מתבן.** תבן:<br>
+**10 [English]**	**straw.** (מַתְבֵּן) derived from תֶּבֶן.
+
+**10 [Hebrew]**	**מדמנה.** טיט וכן לדומן על פני האדמה (ירמיה טו):<br>
+**10 [English]**	**mire.** (מַדְמֵנָה) mire. Comp. (Jer. 8:2) “For dung (לְדֹמֶן) on the face of the earth.”
+
+
+
+**11 [Hebrew]**	**ופרש ידיו.** ושבר ידון וזרועותיו בספוק כפים בבכי:<br>
+**11 [English]**	**And he shall spread out his hands.** (וּפֵרַשׂ) He shall break his hands and his arms by clapping his hands in weeping.
+
+**11 [Hebrew]**	**השוחה.** השט במים:<br>
+**11 [English]**	**the swimmer.** (הַשׂחֶה) the one who floats upon the water.
+
+**11 [Hebrew]**	**לשחות.** לשוט וכן מי שחו (יחזקאל מז י'):<br>
+**11 [English]**	**to swim.** (לִשְׂחוֹת) to float, as: (Ezekiel 47:5) “Water fit to swim in (מֵי שָׂחוּ).”
+
+**11 [Hebrew]**	**והשפיל.** המשפיל את גאוותו:<br>
+**11 [English]**	**and He shall humble.** the One Who humbles his haughtiness.
+
+**11 [Hebrew]**	**עם ארבות ידיו.** לשון וארב לו (דברים יט) תירגם יונתן אשוות ידוהי מקום שהוא שם לו ידים לארוב והם מגדלים גבוהים אשוות חומות ומגדלים כמו (ירמיה ג) נפלו אשיותיה:<br>
+**11 [English]**	**with the cunning of His hands.** (אָרְבוֹת,) an expression similar to (Deut. 19:11): “And he lay in wait for him (וְאָרַב).” Jonathan renders: The layings of His hands. The place where He lays His hands to lie in wait. These are the high towers. אַשְׁוַת is an expression of walls and towers, as: (Jer. 50:15) “Her walls fell (אָשְׁיוֹתֶיהָ).”
+
+
+
+**12 [Hebrew]**	**משגב חומותיך.** למואב הוא אומר:<br>
+**12 [English]**	**the strength of your walls.** He addresses Moab.

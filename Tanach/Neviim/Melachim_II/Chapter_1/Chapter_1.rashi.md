@@ -1,0 +1,13 @@
+**2 [Hebrew]**	**בְּעַד הַשְּׂבָכָה.** גראד"ה בְּלַעַ"ז. אוֹמֵר אֲנִי שֶׁרְגִילִים לְאָרְגוֹ שְׁתִי וָעֵרֶב בִּנְסָרִים אֲרֻכִּים וּקְצָרִים שֶׁקּוֹרִין קנטינל"י בְּלַעַ"ז, וְעוֹשִׂין נְקָבִים נְקָבִים כְּעֵין שְׂבָכָה, וְקָרוּי פרדונ"י בְּלַעַ"ז. וַאֲנִי שָׁמַעְתִּי 'שְׂבָכָה' ווי"ץ בְּלַעַ"ז, וּבִלְשׁוֹן אַשְׁכְּנַז שווינדל שטיג כְּמוֹ שֶׁפֵּרַשְׁתִּי וּבְלוּלִּים יַעֲלוּ.<br>
+**2 [English]**	**through the lattice.** Heb. השבכה, grata in Medieval Latin, lattice. I say that they were accustomed to weave it as a warp and a woof with long boards and short ones, which is called lattes, lathe [in] Fr., cancelli [in Latin]; cancel in O.F., space behind the grating, and they would make it all of holes like a sort of net, and it is called prodne in O.F. And I heard that שְּׂבָכָה is vis in Fr. a screw, and in German schwindel stieg, a spiral staircase, as I explained in (I Kings 6:8): “and with winding stairs they would go up…”
+
+**2 [Hebrew]**	**וַיָּחַל.** לְשׁוֹן חֹלִי.<br>
+**2 [English]**	**and he became ill.** Heb. וַיָחַל an expression of sickness.
+
+
+
+**17 [Hebrew]**	**וַיִּמְלֹךְ יְהוֹרָם תַּחְתָּיו.** אָחִיו הָיָה.<br>
+**17 [English]**	**and Jehoram reigned in his stead.** He was his brother.
+
+**17 [Hebrew]**	**בִּשְׁנַת שְׁתַּיִם לִיהוֹרָם בֶּן יְהוֹשָׁפָט.** אֶפְשָׁר לוֹמַר כֵּן, וַהֲלֹא מָלַךְ בִּשְׁנַת תְּשַׁע עֶשְׂרֵה לִיהוֹשָׁפָט, שֶׁהֲרֵי אֲחַזְיָה מָלַךְ בִּשְׁבַע עֶשְׂרֵה, וּמָלַךְ שְׁנָתַיִם, וּבְסָמוּךְ נָמֵי כְּתִיב: בִּשְׁנַת שְׁמוֹנֶה עֶשְׂרֵה לִיהוֹשָׁפָט מָלַךְ יְהוֹרָם, וִיהוֹשָׁפָט מָלַךְ עֶשְׂרִים וְחָמֵשׁ שָׁנִים קֹדֶם שֶׁמָּלַךְ יְהוֹרָם בְּנוֹ, אֶלָּא רָאוּי הָיָה יְהוֹשָׁפָט לֵהָרֵג בְּרָמוֹת גִּלְעָד, וּבִשְׂכַר שֶׁזָּעַק, תָּלָה לוֹ שֶׁבַע שָׁנִים, וּמֵאוֹתָהּ שָׁעָה הוּא מוֹנֶה לִבְנוֹ.<br>
+**17 [English]**	**in the second year of Jehoram the son of Jehoshaphat.** Is it possible to say this? Did he not reign in the nineteenth year of Jehoshaphat, for Ahaziah reigned in the seventeenth [year of Jehoshaphat] (I Kings 22:52), and reigned for two years (ibid.), and in a nearby chapter also it is written (3:1) In the eighteenth year of Jehoshaphat, Jehoram reigned. Now Jehoshaphat reigned twenty-five years before Jehoram his son reigned. But, Jehoshaphat was deservant of being killed in Ramoth Gilead, but as a reward for his crying out [to God,] God suspended his death for him seven years, and from that time Scripture counts [the years] to his son.

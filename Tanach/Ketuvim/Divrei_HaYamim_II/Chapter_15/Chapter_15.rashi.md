@@ -1,0 +1,48 @@
+**3 [Hebrew]**	**וימים רבים לישראל ללא אלהי אמת.** עד שבאת אתה:<br>
+**3 [English]**	**Now there were many days for Israel without a true God.** until you came.
+
+**3 [Hebrew]**	**וללא כהן מורה.** שאין מי ששואל להם שום דבר תורה משום הכי לא יורו אתכם הכהנים:<br>
+**3 [English]**	**and without an instructing priest.** Since no one asks them words of Torah, the priests will not instruct you.
+
+
+
+**4 [Hebrew]**	**וישב בצר לו על ה' אלהי ישראל.** כלומר עתה כשבאת צרה להם בקשו על ה' אלהי ישראל ויבקשהו לפיכך וימצא להם המצוי והושיעכם בכל אשר הלכתם:<br>
+**4 [English]**	**And they returned to the Lord, the God of Israel, when they were in distress.** He means to say that now, when they were beset with troubles, they beseeched the Lord, the God of Israel, and they sought Him; therefore, He was found by them, and He saved you (sic) wherever you went.
+
+
+
+**5 [Hebrew]**	**ובעתים ההם אין שלום.** באותן הימים רבים לישראל ללא אלהי אמת:<br>
+**5 [English]**	**And in those times.** in those numerous days for Israel, [when they were] without a true God.
+
+**5 [Hebrew]**	**אין שלום ליוצא ולבא וגו'.** ברחבעם כתיב (לעיל ב' י"ב) עליו עלה שישק מלך מצרים על ירושלים כי מעלו בה' וכל הפרשה ואף לאביה היו מהומות רבות:<br>
+**5 [English]**	**there was no peace for anyone going or coming, etc..** Concerning Rehoboam it is written (above 12:2): “Shishak, the king of Egypt, marched against Jerusalem, for they had betrayed the Lord.” Abijah also experienced many turmoils.
+
+
+
+**6 [Hebrew]**	**וכתתו גוי בגוי.** דוגמא (מדבר י"ד) ויכתום:<br>
+**6 [English]**	**And nation was crushed by nation.** Heb. וְכֻתְּתוּ. Another instance of this is (Num. 14:45): “and they struck them and crushed them (וַיַּכְּתוּם).”
+
+
+
+**7 [Hebrew]**	**ואתם חזקו.** לדרוש באלהים:<br>
+**7 [English]**	**But you be strong.** to seek God.
+
+
+
+**11 [Hebrew]**	**ויזבחו לה' ביום ההוא מן השלל הביאו.** פתרון ומן השלל שהביאו זבחו בקר שבע מאות וצאן שבעת אלפים ששבו וממנו הביאו כדלמעלה (ב' י"ד) וגם אהלי מקנה הביאו וישבו צאן לרוב וגומר, ד"א נראה לי ויזבחו לה' ביום ההוא שנצחו ובאו בשלום בירושלים מן השלל הביאו כלומר מן השלל אשר הביאו הביאו בקר שבע מאות וצאן שבעת אלפים:<br>
+**11 [English]**	**And they sacrificed to the Lord on that day of the plunder they brought.** The meaning is: And the plunder that they brought, they sacrificed seven hundred cattle and seven thousand sheep which they had captured, and from that they brought, as above: (14:14): “And they also smote the tents of the livestock, and they captured many sheep. etc.” Another possible explanation is: “And they sacrificed to the Lord on that day” - when they were victorious and came in peace to Jerusalem. “From the plunder they brought” - from the plunder that they had brought, i.e., seven hundred cattle and seven thousand sheep.
+
+
+
+**16 [Hebrew]**	**וגם מעכה אם אסא המלך הסירה מגבירה.** לפי שעשתה לאשרה מפלצת מפליא ליצנותא זכרות עשתה לו לצל' והיתה נבעלת לו:<br>
+**16 [English]**	**And also Maacah, King Asa’s mother he deposed from [being] the queen.** because she had made a frightful image for an asherah to gratify her lust. [מִפְלֶצֶת means] מַפְלֵא לֵצוּתָא. It carried lasciviousness to an extreme. She made herself a phallus for the image, and would copulate with it.
+
+
+
+**17 [Hebrew]**	**והבמות לא סרו.** במות יחיד שהורגלו להקריב עליהם לשמים משחרבה שילה עד שנבנה הבית והיו עונשים עליהם כרת:<br>
+**17 [English]**	**The high places, however, were not removed.** private high places, upon which they had become accustomed to sacrificing to Heaven from the time that Shiloh was destroyed until the Temple was built. [Those who worshipped there] were punishable by כָּרֵת, premature death.
+
+
+
+**19 [Hebrew]**	**ומלחמה לא היתה וגו'.** תניא בסדר עולם בשנת שלשים ושש למלכות אסא עלה בעשא אפשר לומר כן והלא מת כבר בעשא בשנת כ"ו למלכות אסא כדכתיב (במלכים א ט״ז:ח׳) בשנת כ"ו לאסא מלך אלה בן בעשא אלא מה ת"ל בשנת ל"ו למלך אסא כנגד ל"ו שנים שנתחתן שלמה לבת פרעה שהרי כתב כן במלכים (א' ב') ויברחו שני עבדים לשמעי (שם) עד ויצו המלך את בניהו וילך ויפגע בו וכתיב בסמוך (שם ג') ויתחתן שלמה בבת פרעה כלו' מיד אחר אותן ג' שנים ובשנת ד' לקחה והוא מלך מ' שני' נמצא שהיתה עמו ל"ו שנים וכנגדן ל"ו שנים נגזר' גזירה על מלכי ארם להיות שוטנים על ישראל ובאחרונה ליפול ביד בני דוד לכך נאמר בשנת ל"ו למלך אסא ובשנת י"ו למלכותו מעת שנפל זרח הכושי בידו היא שנת ל"ו משמת שלמה ובשנת י"ו לאסא כרתו ברית מלך ישראל ומלך ארם לעלות ולהתגרות באסא וקלקל אסא שנאמר ויוצא אסא כסף וזהב לאמר כרות ברית ביני ובינך וישמע בן הדד. ולא פסקו מלכי ארם מלהיות שוטנים לישראל עד שמת אחז ובשנת ג' לאחז כרתו ברית מלך ישראל ומלך ארם לעלות ולהתגרות באחז ולא הי' זכות באחז שיפלו בידו ונפלו שניהם ביד תגלת פלאסר מלך אשור:<br>
+**19 [English]**	**And there was no war, etc..** We learned in Seder Olam (ch. 16): “In the thirty-sixth year of Asa’s kingdom, Baasha, the king of Israel, advanced.” Is it possible to say so? Had not Baasha already died in the twenty-sixth year of Asa’s reign, as it is written (I Kings 16:8): “In the twenty-sixth year of Asa, king of Judah, Elah the son of Baasha reigned” ? What then is the meaning of “In the thirty-sixth year of Asa’s kingdom”? This corresponds to the thirty-six years from the time that Solomon married Pharaoh’s daughter, for so it is written (I Kings 2:39-46): “and two of Shimei’s slaves ran away… And the king commanded Benaiah etc. and he smote (Sic) and fell upon him,” and immediately following this Scripture writes about Solomon’s marriage to Pharaoh’s daughter, i.e., immediately after those three years, and in the fourth year he married her, and he reigned forty years. We find that she was with him thirty-six years, and corresponding to them were the thirty-six years that the decree was issued upon the kings of Aram to be adversaries to Israel and finally to fall into the hand[s] of David’s sons. Therefore, it is stated: “In the thirty-sixth year of Asa’s kingdom.” In the sixteenth year of his reign, after Zerah the Cushite fell into his hand[s], that is the thirty-sixth year from Solomon’s death, and in the sixteenth [year] of Asa, the king of Israel and the king of Aram made a treaty to advance and provoke Asa. Asa sinned, as it is stated (16:2): “And Asa brought out silver and gold… saying, ‘Make (sic) a treaty between me and you…’ And Ben Hadad heeded.” And the kings of Aram did not cease being adversaries to Israel until Ahaz died, and in the third year of Ahaz, the king of Israel and the king of Aram made a treaty to advance and provoke Ahaz, and Ahaz had no merit that they should fall into his hand[s]; so they both fell into the hand [s] of Tiglath-Pileser, the king of Assyria.

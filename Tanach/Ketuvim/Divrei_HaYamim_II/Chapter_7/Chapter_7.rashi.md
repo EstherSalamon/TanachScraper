@@ -1,0 +1,75 @@
+**6 [Hebrew]**	**והכהנים על משמרותם.** כאשר חלקן דוד לכ"ד משמרות לשרת כל משמרה ומשמרה שבוע שלה והלוים כמו כן על כ"ד משמרות שלהם:<br>
+**6 [English]**	**And the priests… on their watches.** as David had divided them into twenty-four watches, for each watch to serve its week, and the Levites likewise on their twenty-four watches
+
+**6 [Hebrew]**	**להודות.** בכלי שיר שהיו אומרים הודו לה' כי טוב כי לעולם חסדו:<br>
+**6 [English]**	**to give thanks.** with musical instruments, for they recited (Ps. 136): “Give thanks to the Lord for He is good, for His loving kindness is eternal.”
+
+**6 [Hebrew]**	**בהלל דויד.** הכלי שיר שהיו אומרין בו הלל של דוד וההודיות בידם של לוים:<br>
+**6 [English]**	**with David’s praise.** The musical instruments with which they recited David’s praise and the thanksgivings were in the Levites’ hands.
+
+**6 [Hebrew]**	**והכהנים.** מחצרים נגדם שעליהם לשורר בחצוצרות שנאמר ובני אהרן הכהנים יתקעו וגו' (מדבר י'):<br>
+**6 [English]**	**and the priests were sounding the trumpets opposite them.** For it was incumbent upon them to play music with the trumpets, as it is said (Num. 10:8): “And the sons of Aaron, the priests, shall blow [with the trumpets].”
+
+
+
+**7 [Hebrew]**	**ויקדש שלמה את תוך החצר.** רבותינו חולקין בדבר זה (זבחים נ"ט) רבי יהודה אומר קדש את רצפת העזרה בקדושת מזבח להקטיר על הרצפה כי מזבח הנחשת קטן מהכיל שרבו קרבנות להביא אמר לו רבי יוסי והלא כבר נאמר (לעיל ב' ח') אלף עולות יעלה שלמה על מזבח שעשה משה וכשאתה מגיע לחשבון אמות ומנין עולות תמצא שזה של אבנים גדול משל משה שהמזבח של משה מקום מערכתו אמה על אמה ושל שלמה מקום מערכתו כ"ד על כ"ד הרי של שלמה חמשה מאות ושבעים ושש כשל משה א"כ מה הוא קדש המלך את תוך החצר שקבע בו מזבח של אבנים מחובר ברצפה:<br>
+**7 [English]**	**And Solomon consecrated the interior of the court.** Our Sages differ in this matter (Zeb. 59): Rabbi Judah says: He consecrated the floor of the forecourt with the sanctity of the altar to burn offerings on the floor, because the copper altar was too small to contain [the offerings], because they brought many sacrifices. Rabbi Jose said to him: Was it not already stated (1:6): “And he offered up on it a thousand burnt offerings” on the altar that Moses had made? When you compute the number of cubits and the number of burnt offerings, you will find that this one of stones was larger than that of Moses, for on Moses’ altar, the place of its pyre was a cubit by a cubit, whereas on Solomon’s, the place of its pyre was twenty-four by twenty-four. The result is that Solomon’s [altar] was 576 times as large as that of Moses. If so, what is the meaning of (I Kings 8:64): “the king consecrated the interior of the court” ? That he set the stone altar into it, fastened to the floor.
+
+**7 [Hebrew]**	**לא יכול להכיל.** בשל משה הוא אומר כאדם האומר ננס פלוני ופסול לעבודה:<br>
+**7 [English]**	**could not contain.** He is talking about Moses’ [altar], like a person who says, “So and so is a dwarf and is disqualified from performing the sacrificial service.”
+
+
+
+**8 [Hebrew]**	**מלבוא חמת.** שהוא בצפון של ארץ ישראל:<br>
+**8 [English]**	**from the entrance of Hamath.** which is in the north of the land of Israel.
+
+**8 [Hebrew]**	**עד נחל מצרים.** שהיא כנגדו כמפורש באלה מסעי:<br>
+**8 [English]**	**to the brook of Egypt.** which is opposite it, as is delineated in אֵלֶּה מַסְעֵי (ibid. verse 5).
+
+
+
+**10 [Hebrew]**	**וביום עשרים ושלשה לחדש השביעי שלח את העם.** שהוא ט' לחנוכת הבית ובמלכים (א' ח') כתוב וביום השמיני שהוא כ"ב לחדש פתרון ביום ח' נתן להם רשות לילך לאחר החג ולמחר כשיצא החג אז הלכו כולם יחד, ע"א ביום ח' נתן להם רשות ושלח אותם היושבים בתוך תחום שבת וכל מי שירצה ליסע ולילך באותו היום באותו התחום ולמחר שלח כל העם כולו ובב"ר מפרש נטלו רשות ממנו והמתינו עוד שם יום אחד וחזרו ונטלו רשות עוד למחר פעם שניה לכך נאמר ביום כ"ג בחדש:<br>
+**10 [English]**	**And on the twenty-third day of the seventh month, he dismissed the people.** which was the ninth [day] of the inauguration of the Temple, but in I Kings (8:66) it is written: “On the eighth day,” which was the twenty-second of the month. The meaning is: On the eighth day he gave them permission to leave after the Feast, and on the morrow, when the Feast was over, they all went [home] together. Another meaning: On the eighth day he gave them permission and dismissed those who lived within the Sabbath limits and whoever wished to travel and go on that day in that limit, and on the following day, he dismissed the entire populace. In Genesis Rabbah (35:3) it is explained that they took his leave but waited there one more day and then they repeated [this procedure] and took leave again a second time; therefore it is said: “on the twenty-third day of the month.”
+
+**10 [Hebrew]**	**שמחים וטובי לב וגו'.** לדויד ולשלמה כי מה שדבר בפיו (לעיל כ"ח) בנך שלמה הוא יבנה בית לשמי מלא בידו שנתן לו בן יושב על כסאו שבנה הבית לשם ה' ובב"ר מפרש א"ר לוי כתיב כי חנוכת וגו' שמחים מוסב על אשר אמר ה' לדוד שקיים מה שנדר לשלמה שבחר בו מכל אחיו כי חכם הוא:<br>
+**10 [English]**	**rejoicing and delighted of heart, etc. for David, for Solomon.** For that which He spoke with His mouth above (I Chron 28:6): “Your son Solomon - he shall build My House,” He fulfilled with His hand, for He gave him a son sitting on his throne, who built a House in the name of the Lord. And in Genesis Rabbah it is explained: Said Rabbi Levi: It is written: “for the inauguration of, etc.” “Rejoicing” refers to “that the Lord had wrought for David,” viz. that He fulfilled that which He had vowed to Solomon, that He chose him from all his brothers because he was wise.
+
+**10 [Hebrew]**	**ולישראל עמו.** כדכתיב במלכים (א' ח') לא נפל דבר אחד וגו', ע"א ולישראל עמו שהיה להם מושל שהיו יושבין בבטחון ובהשקט כדכתיב וישב יהודה וישראל וגו' (שם ה'):<br>
+**10 [English]**	**and for Israel His people.** it is written in I Kings (8:56): “there has not failed one word, etc.” Another explanation: “and for Israel His people” - they had a ruler, so that they dwelt safely and tranquilly, as it is written (ibid. 5:5): “And Judah and Israel dwelt, etc.”
+
+
+
+**12 [Hebrew]**	**וירא ה' אל שלמה בלילה.** בחזיון לילה:<br>
+**12 [English]**	**And the Lord appeared to Solomon at night.** in a vision of the night.
+
+**12 [Hebrew]**	**שמעתי את תפלתך.** בלשון שאמר שלמה ושמעת השיב הקב"ה שמעתי תפלתך הוא התפלל בהעצר השמים השיב הקב"ה הן אעצור, הוא התפלל רעב וארבה והקב"ה משיבו והן אצוה על חגב, הוא התפלל על דבר והקב"ה משיבו ואם אשלח דבר בעמי ויכנעו עמי במה שיתפללו ויבקשו פני וישובו מדרכיהם הרעים הרי ג' כנגד ג':<br>
+**12 [English]**	**I have heard your prayer.** With the wording that Solomon used, “And You shall hear.” The Holy One, blessed be He, answered him: “I have heard your prayer.” He prayed, (above 6:26): “When heaven is closed up.” And the Holy One, blessed be He, answered him, “If I close up.” He prayed concerning famine and locusts, and the Holy One, blessed be He, answered him, “if I command locusts.” He prayed concerning pestilence, and the Holy One, blessed be He, answered him, “or if I send pestilence upon My people, and My people… humble themselves” by praying and seeking My presence and repenting of their evil ways. Hence we have three [responses] corresponding to three [entreaties].
+
+
+
+**13 [Hebrew]**	**הן אעצור.** והן אצוה ואם אשלח כנגד ג' תפילות ואני אשמע ואסלח לחטאתם וארפא את ארצם:<br>
+**13 [English]**	**If I shut up… if I command… or if I send.** corresponding to three prayers, “I shall hear… and forgive their sin, and heal their land.”
+
+
+
+**16 [Hebrew]**	**והיו עיני ולבי.** תרגם יונתן ותהי שכינתי שריא ביה אם רעותי מתעבדא תמן כל יומיא, והיו עיני שם אם לבי וחפצי שם:<br>
+**16 [English]**	**and My eyes and heart will be.** Jonathan renders (I Kings 9:3): “and My presence will rest there if My will is performed there at all times.” My eyes will be there if My heart and My will are there.
+
+
+
+**20 [Hebrew]**	**אשליך מעל פני.** כתנאי שביני וביניכם ואם לא תשמעו לי (ויקרא כ״ו:י״ד) מה נאמר והשימותי את מקדשיכם:<br>
+**20 [English]**	**I shall cast from before Me.** according to the condition between Me and you, viz. (Lev. 26:14): “But if you do not heed Me.” What does it say there? (verse 31): “And I shall make your sanctuaries desolate.”
+
+**20 [Hebrew]**	**ואתננו למשל ולשנינה.** כענין שמושלים משל על מי שאירע לו דבר פגע:<br>
+**20 [English]**	**and I shall make it a proverb.** as people compose a proverb about someone who was befallen by misfortune.
+
+**20 [Hebrew]**	**ולשנינה.** כמו (דברים ו׳:ז׳) ושננתם לבנך ותתנינון לשון סיפור רעות וכן תרגום ויספר ואשתעי ולשועי:<br>
+**20 [English]**	**and a byword.** Heb. וְלִשְׁנִינָה, like (Deut. 6:7): וְשִׁנַּנְתָּם לְבָנֶיךָ, “and you shall teach them.” [It is] an expression of recounting misfortunes. Similarly, the Targum of (Gen. 37:10) וַיְסַפֵּר“And he told,” is וְאִשְׁתָּעֵי, and [the Targum of] וְלִשְׁנִינָה is וּלְשׁוּעֵי.
+
+
+
+**21 [Hebrew]**	**לכל עובר עליו ישום.** כלומר יחרב הבית ואז כל עובר עליו ישום כמו (איוב י"ח) על יומו נשמו אחרונים:<br>
+**21 [English]**	**every passerby will be astounded.** i.e., The Temple will be destroyed, and every passerby will then be astounded (יִשֹּׁם), like (Job 18:20): “Concerning his day - the later people shall be astonished (נָשַׁמּוּ).”
+
+**21 [Hebrew]**	**במה עשה ה'.** כמו על מה עשה ה' (דברים כ"ט) וכן כתיב (במלכים א' ט'):<br>
+**21 [English]**	**Why has the Lord done.** בַּמֶּה, like (Deut. 29:23): “Why (עַל מֶה) has the Lord done thus,” and so it is written in I Kings (9:9).

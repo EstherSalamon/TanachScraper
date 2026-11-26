@@ -1,0 +1,11 @@
+**1**	**Not for us.** Not for us or for the fitness of our deeds shall You do [this] for us.
+
+**1**	**but for Your name give honor.** So that they should not say, “Where is their God now?”
+
+
+
+**7**	**but they do not feel.** Heb. ימישון, an expression of (Gen. 27:12): “Perhaps my father will feel me (ימשני).”
+
+
+
+**11**	**Those who fear the Lord.** These are the proselytes.

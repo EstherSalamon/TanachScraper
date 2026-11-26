@@ -1,0 +1,2 @@
+**1 [Hebrew]**	**וַיַּעַשׂ בְּצַלְאֵל.** לְפִי שֶׁנָּתַן נַפְשׁוֹ עַל הַמְּלָאכָה יוֹתֵר מִשְּׁאָר חֲכָמִים, נִקְרֵאת עַל שְׁמוֹ (שמות רבה):<br>
+**1 [English]**	**Bezalel made.** Since he devoted himself to the work more than the other wise men, it was called by his name [i. e., the work is attributed to him alone]. -[from Midrash Tanchuma 10]

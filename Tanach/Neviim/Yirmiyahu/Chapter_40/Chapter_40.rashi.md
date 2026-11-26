@@ -1,0 +1,31 @@
+**1 [Hebrew]**	**הדבר אשר היה.** מה שנא' בסוף הענין (ירמיה מב) ויהי מקץ עשרת ימים ויהי דבר ה' וגו' אלא שכתב תחלה על מה נאמר לו ומדרש אגדה באיכה רבתי מה היה הדבר ושובה אל גדליהו אמר לו או את נחית עמהון ואנא מסובר הכא או את סובר הכא ואנא נחית עמהון אמר אין אנא נחית עמהון מה אנא מהני להון אלא יחות ברייהון עמהון דסגין הוא מהני להון:<br>
+**1 [English]**	**The word that came.** What is stated at the end of the section (42:7): “And it was at the end of ten days that the word of the Lord came etc.,” but he first wrote on account of what it was said to him. And the Midrash Aggadah in Lamentations Rabbah (Proem 34): What was the word? “And return to Gedaliah.” He said to him: Either you go down with them and I will remain (?) here, or you remain here and I will go down with them. He replied: If I go down with them, what will I help them? Rather, let their Creator go down with them, for He will help them exceedingly.
+
+**1 [Hebrew]**	**מן הרמה.** שהיה גולה מעצמו עמהן היה רואה כת שלולים בקולרין היה מכניס צוארו ביניהם וכו' כדאיתא בפסיקתא דאפטרתא דברי ירמיהו שא"א לומר שנתנו נבוזראדן באזיקים שהרי צוהו נבוכדנאצר אל תעש לו מאומה רע (לעיל לט):<br>
+**1 [English]**	**from Ramah.** Where he went into exile by himself with them. He would see a group [of youths] joined by a collar and would put his neck between them, etc., as is stated in Pesikta of the Haftarah Divrei Yirmiyahu (p. 113). For it is impossible to say that Nebuzaradan put him in chains since Nebuchadnezzar commanded him, “Do him no harm” (above 39:12).
+
+**1 [Hebrew]**	**באזיקים.** בזיאו"ש בלע"ז:<br>
+**1 [English]**	**in fetters.** Heb. באזקים, ceps in French, fetters.
+
+
+
+**2 [Hebrew]**	**ה' אלהיך דבר וגו'.** למה אתה מצטער עליה' והלא אתה נבאת להם ולא שמעו כדאיתא בפסיקתא:<br>
+**2 [English]**	**“The Lord your God spoke”.** Why are you troubled about them? Did you not prophesy to them and they did not hearken? As it is stated in Pesikta d’Rav Kahana (p. 113a).
+
+
+
+**4 [Hebrew]**	**פתחתיך.** לשון ויפתח הגמלים (בראשית כ״ד:ל״ב) וכת"י וכען הא שריתך ומנחם פתר כולם לשון פתיחה ממש:<br>
+**4 [English]**	**I have released you.** Heb. פתחתיך, an expression related to “And he untied (ויפתח) the camels” (Gen. 24.32). And so did Jonathan render: Behold, now I have untied you. But Menahem (p. 147) interpreted all of them as an expression of actual opening (פתיחה).
+
+
+
+**5 [Hebrew]**	**ועודנו לא ישוב.** בכל זאת לא היה חפץ לשוב אמר לו הקב"ה ושובה אל גדליהו אשר הופקד על העניים הנשארים גם הם צריכין לך כשאר הגולים:<br>
+**5 [English]**	**But he would still not return.** Despite this, he did not wish to return. The Holy One, blessed be He, said to him, “And return to Gedaliah,” who was appointed over the remaining poor people. They, too, need you, like the rest of the exiles.
+
+**5 [Hebrew]**	**ארוחה ומשאת.** מתנן ונבזבן:<br>
+**5 [English]**	**an allowance and a present.** Heb. ארחה ומשאת. Jonathan renders: מתנן וּנבזבן.
+
+
+
+**10 [Hebrew]**	**וקיץ.** דבלה:<br>
+**10 [English]**	**and dried figs.** Heb. וקיץ, dried figs.

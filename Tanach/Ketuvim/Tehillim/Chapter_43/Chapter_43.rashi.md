@@ -1,0 +1,21 @@
+**1 [Hebrew]**	**שפטני.** הקמני:<br>
+**1 [English]**	**Avenge me.** Heb. שפטני, lit. judge me.
+
+**1 [Hebrew]**	**מגוי לא חסיד.** הוא אדום (נ"א ישמאעל) שגר בין שני צדיקים ולא למד ממעשיהם:<br>
+**1 [English]**	**against an unkind nation.** That is Edom (Ishmael - based on a different version of Rashi's commentary), who dwelt between two righteous men [Abraham and Isaac] and did not learn from their deeds.
+
+
+
+**3 [Hebrew]**	**שלח אורך ואמתך.** מלך המשיח שנדמה לאור שנאמר (לקמן קל"ב) ערכתי נר למשיחי, ואליהו הנביא שהוא אמיתי נביא נאמן:<br>
+**3 [English]**	**Send Your light and Your truth.** The King Messiah, who is compared to light, as it is stated (below 132:17): “I have set up a lamp for my anointed,” and Elijah the prophet, who is true, a faithful prophet.
+
+**3 [Hebrew]**	**ינחוני.** מינטרו"נט מו"י בלע"ז:<br>
+**3 [English]**	**that they may lead me.** Heb. ינחוני, menoront moi in old French, they shall lead me.
+
+
+
+**4 [Hebrew]**	**אל אל.** אל הקב"ה שהוא שמחת גילי:<br>
+**4 [English]**	**to the God.** To the Holy One, blessed be He, who is the joy of my exultation.
+
+**4 [Hebrew]**	**ואודך בכנור.** על שהוצאתני:<br>
+**4 [English]**	**and I will thank You with a lyre.** because You took me out of my exile.

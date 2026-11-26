@@ -1,0 +1,132 @@
+**1 [Hebrew]**	**ויקהל דויד את כל שרי ישראל.** אלו השרים שרי שבטים כדכתיב (לעיל כז) ועל שבטי ישראל לראובני:<br>
+**1 [English]**	**And David assembled all the leaders of Israel.** These are the leaders, the leaders of the tribes, as it is written (above 27:16): “And over the tribes of Israel, the leader of the Reubenites was…”
+
+**1 [Hebrew]**	**ושרי המחלקות.** אלו י"ב מחלקות של מלך (כדלעיל כ"ז) ובני ישראל למספרם וגו':<br>
+**1 [English]**	**and the leaders of the divisions.** These are the twelve divisions of the king, as above (27:1): “And the Children of Israel to their number, etc.”
+
+**1 [Hebrew]**	**ושרי האלפים.** כדלעיל:<br>
+**1 [English]**	**and the leaders of the thousands.** as above.
+
+**1 [Hebrew]**	**ושרי המאות.** שוטריהם:<br>
+**1 [English]**	**and the leaders of the hundreds.** their officers.
+
+**1 [Hebrew]**	**ושרי כל רכוש ומקנה למלך.** אותן שמזכיר לעיל על אוצרות המלך ועל הכרמים ועל הזיתים והמקנה השרים שהיו על הבקר ועל הגמלים ועל הצאן שכל מין הבהמה קרוי מקנה כדכתיב גם מקנה בקר וצאן הרבה היה לי דקהלת:<br>
+**1 [English]**	**and the officers over all the property and the livestock of the king.** those whom he mentions above (27:25-31): “And over the treasuries of the king… and over the vineyards… and over the olive trees… and the livestock”; and the officers who were in charge of the cattle, and of the camels, and of the flocks, for every species of domestic animal is called מִקְנֶה, as it is written (Ecc. 2:7): “I also had much livestock (מִקְנֶה) consisting of cattle and flocks.”
+
+
+
+**8 [Hebrew]**	**כל ישראל.** כגר כאזרח:<br>
+**8 [English]**	**all Israel.** the stranger like the native.
+
+**8 [Hebrew]**	**ובאזני אלהינו.** לפני אלהינו דוגמא אתם נצבים היום כולכם לפני ה' אלהיכם וכן ויעמוד המלך על העמוד אשר לפני ה' (מלכים ב כ״ג:ג׳):<br>
+**8 [English]**	**and in the ears of our God.** Before our God, similar to (Deut. 29:9): “You are standing today, all of you, before the Lord your God.” Also, (II Kings 23:3): “And the king stood on his place, etc. before the Lord.”
+
+**8 [Hebrew]**	**שמרו ודרשו כל מצות ה' אלהיכם.** זה אמר לכל ישראל יחד, אבל לשלמ' אמר לפני כל ישראל ועבדהו:<br>
+**8 [English]**	**observe and seek all the commandments of the Lord your God.** He said this to all Israel together, but to Solomon he said it before all Israel [as in the following verse].
+
+
+
+**9 [Hebrew]**	**בלב שלם.** בלבב שלם לא נאמר שיהא משמע שני לבבות אלא בלב שלם שלא יהיה לך אלא לבב אחד לאבינו שבשמים וכן יסד הפייט (בקדושתא דמוסף של יום א' דר"ה) שני לבבות לך כאחד לאחד, ודוגמתו (מלכים א ח׳:ס״א) והיה לבבכם שלם עם ה' אלהינו שלמים לא כתיב אלא שלם כל שני לבותם יהיו לב א' שלם וכן מפורש בב"ר וסעדו לבכם אחר תעבורו (בראשית י״ח:ה׳) מלמד שאין למלאכים אלא לב אחד וגם לעתיד לבא יהיה כן כדכתיב שיתו לבכם לחילה (תהילים מ״ח:י״ד):<br>
+**9 [English]**	**and worship Him with a whole heart.** Heb. בְּלֵב שָׁלֵם. It is not stated בְּלֵבָב שָׁלֵם, which would mean two hearts, but בְּלֵב שָׁלֵם, that you shall have but one heart for our Father Who is in heaven. And so did the liturgical poet set down (in the Kedushah of Musaph of the first day of Rosh Hashanah): “You have two hearts like one for the One.” Similar to this, [we find in] (I Kings 8:61): “Let your heart [therefore] be whole (שָׁלֵם) with the Lord our God.” It is not written שְׁלֵמִים but שָׁלֵם: your two hearts will be one whole heart. And so it is explained (Gen. 18:5): “… and refresh your heart (לִבְּכֶם), afterwards you may pass on.” This teaches us that the angels have only one heart, and also in the future it will be so, as it is written: (Ps. 48:14): “Give heed (לִבְּכֶם lit., your heart) to its walls.”
+
+**9 [Hebrew]**	**כי כל לבבות דורש ה'.** כאן נופל לומר לבבות כל לבבות דורש ה' בין טוב ובין רע:<br>
+**9 [English]**	**for the Lord seeks all hearts.** Here it is appropriate to say לְבָבוֹת; the Lord seeks all hearts, whether good or bad.
+
+**9 [Hebrew]**	**וכל יצר מחשבות מבין.** בב"ר שנינו קודם שנוצר יציר מבין הקב"ה מה שאדם עתיד לחשוב:<br>
+**9 [English]**	**and He understands the thoughts of every creation.** In Genesis Rabbah (9:3), we learned: “Before a creature is created, the Holy One, blessed be He, understands what the person is destined to think.”
+
+**9 [Hebrew]**	**אם תדרשנו ימצא לך.** לכך אני אומר (לעיל) ודרשו כל מצות ה':<br>
+**9 [English]**	**if you seek Him, He will be found to you.** Therefore, I say, (v. 8): “and seek all the commandments of the Lord.”
+
+**9 [Hebrew]**	**יזניחך לעד.** יעזבך אין כתיב כאן אלא יזניחך שהוא קשה ממנו כמו והאזניחו (ישעיה יט), זנח ה' מזבחו (איכה ב'):<br>
+**9 [English]**	**He will abandon you forever.** Heb. יַזְנִיחֲךָ. It is not written here: He will forsake you (יַעַזָבְךָ), but He will abandon you (יַזְנִיחֲך), which is [a] harsher [term] like (Isa. 19:6): “And they will abandon (הֶאֶזְנִיחוּ) the rivers;” (Lam 2:7): “The Lord abandoned (זָנַח) His altar.”
+
+
+
+**10 [Hebrew]**	**כי ה' בחר בך לבנות בית למקדש.** לא לבנות לו לדור בו כי השמים ושמי השמים לא יכלכלוהו אלא למקדש לצורך הארון שנקרא מקדש דכתיב (מדבר י') ונשאו הקהתים נושאי המקדש והוא הארון ולא בחר בך מפני שאתה משובח משאר אנשים אלא למענו ולמען רחמיו לכך חזק ועשה:<br>
+**10 [English]**	**for the Lord has chosen you to build a house for the Sanctuary.** not to build it for Him to dwell therein, for the heavens and the heavens of the heavens cannot contain Him, but for the Sanctuary, for the requirement of the Ark, which is called מִקְדָּשׁ, as it is written (Num. 10:21): “And the Kehathites, the bearers of the מִקְדָּשׁ traveled,” and that is the Ark. He did not choose you because you are more praiseworthy than other men, but for His sake and for the sake of His mercies; therefore be strong and do it.
+
+
+
+**11 [Hebrew]**	**תבנית האולם.** ארכו ורחבו וגבהו כדכתיב (במלכים א ו׳:ג׳) והאולם על פני היכל הבית וגו':<br>
+**11 [English]**	**the pattern of the porch.** Its length, its width, and its height as is written in I Kings (6:3): “And the porch before the Temple of the House, etc.”
+
+**11 [Hebrew]**	**וגנזכיו.** מקום שאוצרות הקדשים מונחים:<br>
+**11 [English]**	**and its treasuries.** the place where the treasuries of the hallowed objects were deposited.
+
+
+
+**12 [Hebrew]**	**אשר היה ברוח עמו.** כאשר הראהו שמואל הרואה כדכתיב לקמן המה יסד דוד ושמואל הרואה ורבותינו אמרו וישאל ויאמר איפה שמואל ודוד ויאמר הנה בניות ברמה עוסקין היו בבניינו של עולם הוא ב"ה ולמד לו אותה שעה מה שאין תלמיד ותיק יכול ללמוד בכמה שנים:<br>
+**12 [English]**	**that he had by the spirit.** As Samuel the Seer showed him, as it is written (above 9:22): “… whom David and Samuel established permanently.” Our Rabbis said (Zeb. 54b) (I Sam. 19:22): “… and he asked and said, ‘Where are Samuel and David?’ And one said, 'Behold at Naioth in Ramah.’” They were engaged in the building of the world. That refers to the Temple. And he taught him at that time what a faithful student cannot learn in many years. (Mid. Sam. 22:4)
+
+**12 [Hebrew]**	**סביב לאוצרות בית האלהים ולאוצרות הקדשים.** ולא מפרש איזה מהקדשים אשר הקדיש דוד וראשי האבות שבאותו פרק היה ממונים עליו עד שיבנו בית המקדש אבל אוצרות אלו תמיד היו כל עוד שהבניין קיים:<br>
+**12 [English]**	**round about, of the treasuries of the House of God and of the treasuries of the hallowed things.** but he does not explain which of the hallowed things that David and the chiefs of the fathers’ houses hallowed [he is referring to]; and at that time they were appointed over it until they would build the Temple, but these treasuries were always in existence as long as the Temple existed.
+
+
+
+**13 [Hebrew]**	**ולמחלקות הכהנים והלוים.** שחלק לכ"ד משמרות כדלעיל כל זה מסר לו:<br>
+**13 [English]**	**And of the divisions of the priests and the Levites.** for he divided them into twentyfour watches, as above; all this he gave over to him.
+
+**13 [Hebrew]**	**ולכל כלי עבודת בית ה'.** משקל מה וכמה כל כלי וכלי כמפורש:<br>
+**13 [English]**	**and of all the vessels of the service of the House of the Lord.** the weight of what and how much each vessel is, as is explained.
+
+
+
+**14 [Hebrew]**	**לזהב במשקל לזהב לכל כלי עבודה ועבודה.** וכן לכל כלי הכסף במשקל:<br>
+**14 [English]**	**Of gold, in weight for gold, for all the vessels of every service.** and so for all silver vessels by weight.
+
+
+
+**15 [Hebrew]**	**ונרתיהם זהב.** משקל לכל נר ונר:<br>
+**15 [English]**	**and their lamps of gold.** the weight of each lamp.
+
+**15 [Hebrew]**	**במשקל מנורה ומנורה.** כי עשרה מנורות עשה:<br>
+**15 [English]**	**of the weight of each candelabrum.** for he made ten candelabra.
+
+**15 [Hebrew]**	**כעבודת מנורה ומנורה.** ומשקל כלי עבודת מנורה מלקחיה ומחתותיה, וגם משקל:<br>
+**15 [English]**	**in the service of every candelabrum.** and the weight of the service vessels of the candelabrum, its tongs and its charcoal pans, and also the weight.
+
+
+
+**16 [Hebrew]**	**שלחנות המערכת.** לערוך עליו לחם הפנים למשקל שלחן ושלחן כי עשרה שלחנות של זהב עשה בהיכל ומשקל הכסף לשלחנות שבעזרה שמפשיטין עליהם הקרבנות ומשקל המזלגות והמזרקות:<br>
+**16 [English]**	**for the tables of the showbread.** upon which to arrange the showbread. [He instructed him] about the weight of each table, for he made ten golden tables in the Heichal and the weight of the silver for the tables in the forecourt, upon which they would flay the sacrifices, and the weight of the forks and the basins.
+
+
+
+**17 [Hebrew]**	**ולכפורי הזהב במשקל.** כפורי כלי שרת לקנח בכלים הדם מהם ודוגמא בפ' קמא דבבא מציעא ההוא גברא דכפר ידיה בגלימא דחבריה וכל כפרה לשון קינוח וחטוי הוא:<br>
+**17 [English]**	**and for the basins of gold in weight Heb..** כְּפוֹרֵי כְּפוֹרֵי. [They] are service vessels with which to wipe the blood from the vessels, and an example is in the first (sic) chapter of Baba Mezia (24a): “The man who wiped (דְּכָפַר) his hands with his neighbor’s cloak,” and every [expression of] כַּפָּרָה is an expression of wiping and purification.
+
+
+
+**18 [Hebrew]**	**זהב מזוקק.** כמו כסף מזוקק:<br>
+**18 [English]**	**refined gold.** Heb. מְזֻקָּק זָהָב, like refined silver (כֶּסֶף מְזֻקָּק).
+
+**18 [Hebrew]**	**ולתבנית המרכבה.** הם הכרובים שהשכינה רוכבת עליהם:<br>
+**18 [English]**	**and for the pattern of the chariot.** They are the cherubim upon which the Shechinah “rides.”
+
+**18 [Hebrew]**	**לפרשים.** כלומר המפורשים והסוככים על הארון כדאמר והיו הכרובים פורשי כנפים וגו' (שמות כ״ה:כ׳):<br>
+**18 [English]**	**which spread out [their wings] and covered.** Heb. לְפרְשִׂים. i.e., which were spreading and covering over the Ark, as is stated (Ex. 25:20): “The cherubim shall spread their wings, etc.”
+
+
+
+**19 [Hebrew]**	**הכל בכתב.** פתרון הכל בכתב סדר לו סכום משקל ומשקל של כל כלי וכלי שמואל הרואה:<br>
+**19 [English]**	**All was in writing.** The meaning is: He arranged everything in writing for him: the sum of every weight of every vessel, from Samuel the Seer.
+
+**19 [Hebrew]**	**כל מלאכות התבנית.** תבנית הבית חכמני והשכילני כמו תבנית אורך ורוחב וגובה והכל דרש שמואל מן התורה ברוח הקודש כמו ששנינו הר הבית היה חמש מאות אמה על חמש מאות אמה (שם כ"ז) דרש אורך החצר מאה באמה ורוחב חמשים בחמשים חמשים פעמים חמשים הם כ"ה מאות נ"ל חתכם לחמש רצועות להיות חמש מאות על חמש מאות והוא מיוסד בסילוק קרובץ של שבת חנוכה המתחיל מנשה את אפרים ואפרים את מנשה והכל דרש שמואל ברוח הקודש ולמד לדוד כן:<br>
+**19 [English]**	**all the works of the pattern.** He endowed me with the wisdom and the understanding of the pattern of the House, e.g., the pattern of the length, the width, and the height, and Samuel derived everything from the Torah with the holy spirit, as we learned (Middoth 2:1): “The Temple Mount was five hundred cubits by five hundred cubits.” He expounded (Ex. 27:18): “The length of the forecourt was one hundred cubits; the free width: fifty by fifty.” Fifty times fifty are twentyfive hundred cubits. It appears to me that he cut them into five strips to be five hundred by five hundred cubits. This was set down in the final liturgical poem for the Sabbath of Hanukkah, which commences: “Manasseh, etc.” Samuel derived all this with the holy spirit and taught it to David.
+
+
+
+**20 [Hebrew]**	**חזק ואמץ.** כדי שתתקיים מלכותך כמו (לעיל כ"ח) שהבטיחך הקב"ה והכינותי מלכותו עד עולם אם יחזק לעשות מצותי וגו':<br>
+**20 [English]**	**Be strong and of good courage.** in order that your kingdom endure as the Holy One, blessed be He, has promised you, (verse 7): “… and I shall prepare his kingdom to eternity if he strengthens himself to perform My commandments, etc.”
+
+
+
+**21 [Hebrew]**	**והנה מחלקות הכהנים והלוים לכל עבודת בית האלהים עמך בכל מלאכה.** כלומר הכל ערכתי וסדרתי וזמנתי לך מחלקות ופועלים ואין לך לעכב כי אם מיד לבנות הבית:<br>
+**21 [English]**	**And behold the divisions of the priests and the Levites for all the service of, etc..** That is to say: I arranged and set everything up, and I prepared for you the divisions and the laborers, and you have not to delay it but to build the House immediately.
+
+**21 [Hebrew]**	**והשרים.** הממונים על הפועלים ושוטריהם:<br>
+**21 [English]**	**and the leaders.** who are appointed over the laborers and their officers.
+
+**21 [Hebrew]**	**וכל העם לכל דבריך.** לעשות צווייך:<br>
+**21 [English]**	**and all the people for all your words.** to perform your command.

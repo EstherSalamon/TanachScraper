@@ -1,0 +1,52 @@
+**1 [Hebrew]**	**ויבא שלמה את קדשי.** כל מה שבפסוק לפי פשוטו מה שנשאר לו מן הקדשות שהקדיש דוד כדכתיב למעלה גם אותם הקדיש המלך דוד לה' עם הכסף והזהב אשר נשא מכל הגוים וגו' ומה שהותיר לו נתן באוצרות בית האלהים, ומדרש אגדה יש מחכמים אומרים לפי שהיה יודע שסופו ליחרב ושלא יהו אומרים העובדי כוכבים קשה יראתנו שלקחה נקמתה מן הבית הזה שנבנה מן הגזילות וחמסים שגזל דוד מבתי עבודת כוכבים שלה ויש אומרים כך אמר (הקב"ה) צ"ל שלמה רעב היה בימי דוד (אבי) שלש שנים שנה אחר שנה והיה לו לבזבז ההקדשו' הללו להחיות בהן עניי ישראל ואני מביא סיוע שהרי בכל ההקדשות שדוד הקדיש כמו שכתוב למעלה (שם) לא נאמר בהן עשה שלמה דבר פלוני זה כאשר נאמר בנחשת שנאמר (שם) ומטבחת ומכון ערי הדדעזר לקח דוד נחשת רבה מאד בה עשה שלמה את ים הנחשת וגו' אבל מכסף ומזהב שלא נאמר בו עשה שלמה מהן שום דבר מכלל שלא עשה וזהו שאין כתיב כאן שום נחשת כי אם כסף וזהב ולפי פשוטו נראה לי מה שלא אמר נחשת לפי שהנחשת בזול ואינו ראוי וכדי והגון להביא נחשת באוצרות בית ה':<br>
+**1 [English]**	**and Solomon brought his father David’s hallowed things.** Whatever is mentioned in this verse-according to its simple meaning-refers to that which remained to him from the things that David hallowed, as is written above (I Chron. 18:11): “Those also King David dedicated to the Lord, [along] with the silver and the gold that he took from all the nations, etc.,” and that which he left over he deposited into the treasuries of the House of God. And [in] Midrash Aggadah (Pesikta Rabbathi 6:7), some sages say that [he did not use these articles for the building of the Temple] because he knew that it was destined to be destroyed, in order that the nations should not say, “Our deity is strong,” for it took revenge on this House, which was built from the loot and the spoils that David robbed from their heathen temples. Some say: So said Solomon, “There was a famine during the days of David my father for three consecutive years, year after year, and he should have given away these hallowed things to sustain the poor of Israel with them.” I wish to bring support [to the view that Solomon did not build the Temple with the spoils of the nations], for regarding all the devoted things that David dedicated, as is written above (ibid.), it is not stated that with this Solomon made such and such a thing, as it is stated regarding the copper, as it is said (ibid. verse 8): “And from Tibhath and from Cun, cities of Hadadezer, David took huge quantities of copper, with which Solomon made the copper sea, etc.,” but of the silver and gold, about which it is not stated that Solomon made anything from it, it may be deduced that he did not make [anything from it]. Therefore, it is not written here any copper, but silver and gold. According to the simple interpretation, it seems to me that Scripture does not mention copper because copper is cheap, and it is not proper or fitting to bring it into the treasuries of the House of God.
+
+
+
+**2 [Hebrew]**	**אז יקהל שלמה את זקני ישראל.** נהג במדת חכמה שהקהיל הזקנים ולא הבחורים יותר מדוד שהקהיל הוא אף הבחורים כדכתיב ויקהל דוד את כל ישראל ירושלים וגומר (לעיל כ"ח):<br>
+**2 [English]**	**Then Solomon assembled the elders of Israel.** He conducted [the matter] with the attribute of wisdom, in that he gathered the elders, and not the youths, [which was] better than David [had done,] who gathered even the youths, as it is written, “And David assembled all the leaders of Israel… Jerusalem” (I Chron. 28:1).
+
+
+
+**3 [Hebrew]**	**בחג.** הוא חג הסכות:<br>
+**3 [English]**	**on the festival.** the festival of Succoth.
+
+
+
+**5 [Hebrew]**	**את אהל מועד.** שעשה משה גנזו שלמה בבית אוצרות האלהים עם שאר כלים וההקדשות לפי שלא הוצרך לו ורבותינו אמרו שנגנזו:<br>
+**5 [English]**	**and the Tent of Meeting.** that Moses made, Solomon hid it in the treasuries of the House of God with the remaining vessels and the hallowed articles, because he did not need them, and our Sages (Tosefta of Sotah 13:1) said that they were hidden away.
+
+**5 [Hebrew]**	**ואת כל כלי הקדש אשר באהל.** אשר נתן (ס"א נטע) דוד לארון:<br>
+**5 [English]**	**all the sacred vessels that were in the Tent.** that David had given to the Ark
+
+**5 [Hebrew]**	**העלו אותם הכהנים הלוים.** פתרונו מוסב למעלה שאמר וישאו הלוים את הארון ומפרש מי היו אותם הלוים שאמרתי לך למעלה הכהנים הלוי' שאף הכהנים מבני לוי הם ולא לוים ממש היו וכן כתוב במלכים (א' ח') וישאו הכהנים את הארון וגם הכלים ואהל מועד העלו עמהם הלוים כמשפטם:<br>
+**5 [English]**	**the priests and the Levites brought them up.** This refers back to the above, where Scripture says: “and the Levites bore the Ark,” and he explains: Who were those Levites that I mentioned to you above? The Levitic priests, for the priests are also of the sons of Levi, but they were not real Levites, and so it is written (I Kings 8:3): “and the priests took up the Ark.” And the Levites also brought up the vessels and the Tent of Meeting according to their regulations.
+
+
+
+**8 [Hebrew]**	**ויהיו הכרובים פרשים כנפים על מקום הארון.** במקום שהארון עומד שם לפיכך ויכסו הכרובים על הארון:<br>
+**8 [English]**	**And the cherubim were spreading their wings over the place of the Ark.** in the place where the Ark was standing Therefore -
+
+**8 [Hebrew]**	**ועל בדיו מלמעלה.** למעלה לארון כך היו עומדים הבדים ונמשכו כ"כ לחוץ כלפי מזרח שהיה יכול הארון לעמוד תחת הכרובים ממש בלא עכוב הבדים ולפיכך ויכסו הכרובים על הארון וגם את הבדים כסו קצת אצל הארון ולא כולם שהיו מגיעים עד המזרח ואינך יכול לפרש שכסו הכרובי' על כל הבדים וגם משום דבר זה:<br>
+**8 [English]**	**and the cherubim covered over the Ark and over its staves from above.** above the Ark. So were the staves standing, and they extended so far out toward the east, that the Ark could stand exactly beneath the cherubim without the hindrance of the staves. Therefore, “and the cherubim covered over the Ark.” And they also covered part of the staves adjacent to the Ark, but not all of them, because they reached until the east. But you cannot explain that the cherubim covered the entire staves. And also, because of this-
+
+
+
+**9 [Hebrew]**	**ויאריכו הבדים ויראו ראשי הבדים מן הארון על פני הדביר.** שאם לא כן אלא כאחד מדה אחת היו מושכין זה מזה והלא הבדים שעשה משה עדיין הם היו שם והם עומדים בקדש הקדשים של אהל מועד שלא היה כי אם עשר וזה היה עשרים והיה מגיע מקיר אל קיר והכרובים של משה שנאמר אף בהם פורשים וסככים אין צריך לזוז כלל מן הבדים ממקומם שהרי הכרובים של משה עומדים היו למעלה לארון על הכפורת וכרובים שנאמר כאן אותם שעשה שלמה עומדים על רגליהם בקרקע ואעפ"כ אותן של משה עדיין היו אדוקין על הכפורת כך פי' ר' נתן (ורבי פי') הכהנים רצו להכניס הארון עם בדיו בדביר ולא הספיקו כי הענן מלא את בית ה' ולא יכלו להביא את הכרובים עד כותל מערבי ממש ועל כן היו בולטים בפרוכת אך קשה לי דכתיב ויהי בצאת הכהנים ואחר כן מלא כבוד ה' את בית אלהים (ור' יוסף זצ"ל פי') ויתארכו לא נאמר דמשמע ויתארכו הן עצמן אלא ויאריכו דמשמע אחרים מאריכין אותם ומפרש האומנין האריכו הבדים עד לעשרים והיו נוגעין שתי קצותם לכותל מזרחי ושתי קצותם לכותל מערבי ותימא יש והיאך יכול לפרוש כנפיהם ולכסות הארון שהיה עשר אמות מהן:<br>
+**9 [English]**	**And they extended the staves so that the ends of the staves were seen from the Ark before the Debir.** For if it were not so, but [if they were] the same; i.e., if they were extended with one measure one from the other, [i. e., the part of the staves extending eastward equaled the part extending westward]. The staves that Moses made were still there, and they stood in the Holy of Holies of the Tent of Meeting, which was only ten [cubits], whereas this was twenty [cubits], and it reached from wall to wall. With the cherubim of Moses, about which it is also written, “spreading and covering,” they did not have to move any part of the staves from their place, because the cherubim of Moses were standing over the Ark on the Ark cover, but as for the cherubim mentioned here-Solomon made them standing on their feet on the ground, but nevertheless, those of Moses were still attached to the Ark cover. This is how Rabbi Nathan explained it, (but our Rabbi explained) that the priests wished to bring the Ark into the Debir with its staves, but they were unable to do so, because the Cloud filled the House of the Lord, and they could not bring the cherubim up to the western wall. Therefore, they [the staves] protruded into the dividing curtain. To me, this poses a difficulty, however, because it is written (I Kings 8:10f.): “And it came to pass when the priests came out, etc.,” and afterwards, “the glory of the Lord filled the House of God (sic).” (Rabbi Joseph of blessed memory, however, explained) that it does not say וַיִּתְאָרְכוּ [in the reflexive conjugation], which would mean that they became elongated by themselves, but וַיַּאֲרִיכוּ [in the causative conjugation], which means that others elongated them, and he explained that the craftsmen elongated them to twenty cubits, and their two ends touched the eastern wall and their [other] two ends touched the western wall. It is, however, puzzling how they could spread out their wings and cover the Ark, which was ten cubits from them.
+
+
+
+**11 [Hebrew]**	**ויהי בצאת הכהנים מן הקדש.** מיד היה לו לסמוך והבית מלא ענן בית ה' אלא שמפסיק בינתים וכן במלכים (א' ח') ויהי כצאת הכהנים מן הקדש והענן מלא את בית ה':<br>
+**11 [English]**	**And it came to pass when the priests left the Holy.** He should have immediately written, “and the House became full of the cloud of the House of the Lord,” but he interrupted in between, and so in I Kings (8:10): “And it came to pass, when the priests came out of the Holy, and the cloud filled the House of the Lord.”
+
+**11 [Hebrew]**	**כי כל הכהנים הנמצאים התקדשו.** לדבר זה:<br>
+**11 [English]**	**for all the priests that were present had sanctified themselves.** for this thing.
+
+**11 [Hebrew]**	**אין לשמור למחלקות.** כ"ד של לוים וכ"ד של כהנים אלא כל הנמצאים התקדשו:<br>
+**11 [English]**	**not taking heed of the divisions.** The twenty-four of the Levites and the twenty-four of the priests, but all those present sanctified themselves.
+
+
+
+**13 [Hebrew]**	**ויהי כאחד.** למחצרים פתרון ויהיו אחודים יחד המחצרים כולם יחד וממה היו אחודים לדבר זה להשמיע קול אחד כאחד להלל ולהודות לה':<br>
+**13 [English]**	**And the trumpeters, etc. were as one.** The meaning is: And they were united - all the trumpeters together. Now for what purpose were they united? To make one sound together to praise and to thank the Lord.
